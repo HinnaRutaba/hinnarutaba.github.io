@@ -1,4 +1,4 @@
-Hi :smile:
+Hi 😄
 
 Thanks for stopping by!
 
